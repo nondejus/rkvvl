@@ -1,2 +1,0 @@
-# rkvvl
-onbekende oud-tegenspelers
